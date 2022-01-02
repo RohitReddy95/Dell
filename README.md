@@ -5,4 +5,4 @@ With nvidia grafic card
 its a gaming laptop
 it has thermal cooling 
 game shift is also present in this laptop 
-
+all about the dell laptop G3
